@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @masteraryanmehra
+- 👀 I’m interested in grinding
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me - helloaryanmehra@gmail.com
+- 😄 Pronouns : HE/HIM
+- ⚡ Fun fact : IF IT WORKS, DON'T TOUCH IT
